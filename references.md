@@ -5,3 +5,5 @@
 4. Stacy
 5. Food
 6. wanting to buy things but not haveing enough money
+
+
